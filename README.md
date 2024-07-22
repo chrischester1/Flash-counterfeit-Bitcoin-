@@ -13,3 +13,7 @@ Contact me - To Purchase The Flash Coins Telegram - @chrischester - https://t.me
 
 Want To Know About How Flash Bitcoin Works ? And What Is Flash Bitcoin ?
 https://youtu.be/PIi7T6nNdUs?si=turkxs_x1mb2WzAH
+
+
+https://github.com/user-attachments/assets/e674b698-a5af-442f-90ee-9d664aa2dbb8
+
