@@ -10,7 +10,7 @@ Sending flash Bitcoin to any wallet
 
 The only flash software in the world 🌎😏 Buy The Real Flash Coins💎🌉 (Base Level) Visit Website For More Levels
 
-Transferable ⭐️ Splittable ⭐️ All Web 14 Wallets Supported ⭐️ Stays Life Long ⭐️
+Transferable ⭐️ Tradable ⭐️ All Web 14 Wallets Supported ⭐️ Stays Life Long ⭐️
 
 telegram channel - https://t.me/alliancedeal
 
